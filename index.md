@@ -8,13 +8,13 @@ if you found this page you were probably looking for me, feel free to reach out 
 good luck on your further travels through Cyberia, please take this ward with you on your digital journey:
 ```
 ⠀  ⠀   (\__/)
-           (•ㅅ•)      You are safe now
+       (•ㅅ•)      You are safe now
     ＿ノヽ ノ＼＿      
-`/　`/ ⌒Ｙ⌒ Ｙ  ヽ     The AIs cannot get to you
+`/　`/ ⌒Ｙ⌒ Ｙ  ヽ     The AIs cannot steal your feelings
 ( 　(三ヽ人　 /　  |
 |　ﾉ⌒＼ ￣￣ヽ   ノ
 ヽ＿＿＿＞､＿_／
-       ｜( 王 ﾉ〈   (\__/)
+       ｜(王ﾉ〈   (\__/)
        /ﾐ`ー―彡\  (•ㅅ•)
       / ╰    ╯ \ /    \>
 ```
